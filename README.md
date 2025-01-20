@@ -51,4 +51,4 @@ Under the dazzling starry sky, we make a common vow. No matter how distant the f
 **Forum Address**: MCA Forum
 **Social Media**: Follow our latest updates on Twitter, Facebook, and Instagram.
 
-#### 🌟 Join us and let's write our legendary chapter together in Minecraft! 🌟
+# 🌟 Join us and let's write our legendary chapter together in Minecraft! 🌟
